@@ -4,6 +4,7 @@ Soy German, pueden decirme ger, tengo 22 años y estoy terminando de cursar 2do 
 ![Foto_1](foto_1.jpg)
 
 ## Sobre mi
+* Legajo: 1767630
 * Me gusta mucho el fulbo 
 * Segundo Francia
 * Hincha de el mas grande ⬜🟥⬜ (actualmente arriba de la michoneta)
